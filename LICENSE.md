@@ -1,4 +1,4 @@
-#  
+#  catch a monster secret Scripts is the best catch a monster Script, featuring silent aim and auto-sell. Safe and powerful for all your needs.
 
 
 
